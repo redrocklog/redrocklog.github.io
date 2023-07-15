@@ -133,3 +133,39 @@ Decree 18
 Question 3
 
 ...we call Sacred Scripture all those which Cyril [Lucaris] collected from the Synod of Laodicea, and enumerated...; specifically, “The Wisdom of Solomon,” ... For we judge these also to be with the other genuine Books of Divine Scripture genuine parts of Scripture. ... All of these we also judge to be Canonical Books, and confess them to be Sacred Scripture.
+
+
+
+
+
+
+
+
+
+
+
+
+
+> 12 Wisdom is radiant and unfading, and she is easily discerned by those who love her, and is found by those who seek her. 13 She hastens to make herself known to those who desire her. 14 One who rises early to seek her will have no difficulty, for she will be found sitting at the gate. [Wis: 6:12-14]
+
+
+> 17 The beginning of wisdom is the most sincere desire for instruction, and concern for instruction is love of her, 18 and love of her is the keeping of her laws, and giving heed to her laws is assurance of immortality, 19 and immortality brings one near to God; 20 so the desire for wisdom leads to a kingdom. [Wis: 6:17-20]
+
+
+> 7 Therefore I prayed, and understanding was given me; I called on God, and the spirit of wisdom came to me. [Wis: 7:7]
+
+
+> 21 I learned both what is secret and what is manifest, 22 for wisdom, the fashioner of all things, taught me. 
+
+
+
+
+
+
+
+> 9 With you is wisdom, she who knows your works and was present when you made the world; she understands what is pleasing in your sight and what is right according to your commandments. 10 Send her forth from the holy heavens, and from the throne of your glory send her, that she may labor at my side, and that I may learn what is pleasing to you. 11 For she knows and understands all things, and she will guide me wisely in my actions and guard me with her glory. [Wis: 9:9-11]
+
+
+
+
+
