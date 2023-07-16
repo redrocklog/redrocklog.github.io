@@ -73,7 +73,7 @@ Not to bury the lead, **the Wisdom of Solomon condemns the veneration/honour/wor
 
 # 5. Wisdom in the Wisdom of Solomon
 
-Wis is similar in format to Proverbs and is a series of short words-of-the-wise. It was written when jewish culture was clashing with hellenic culture, probably in an Alexandrian (Egyptian) content. The part that we're interested in chapters 13-15 which discusses the foolishness of idolatry. 13-15 is in the greater context of comparing egypt to israel in terms of their righteousness, their sin, and how God has treated them. To follow along, its worth reading chapters 10-15, but honestly its not a long book and it is filled with wisdom so maybe read the whole thing.
+Wis is similar in format to Proverbs and is a series of short words-of-the-wise. It was written when jewish culture was clashing with hellenic culture, probably in an Alexandrian (Egyptian) content. The part that we're interested is chapters 13-15 which discusses the foolishness of idolatry. 13-15 is within the greater context of comparing egypt to israel in terms of their righteousness, their sin, and how God has treated them. To follow along, its worth reading chapters 7+, but honestly its not a long book and it is filled with wisdom so maybe read the whole thing.
 
 
 To understand Wis requires that you understand the role that "Wisdom" plays in the text. Wisdom, echoing the depictions in Proverbs, is not an abstract mental capacity, instead Wisdom is personified. Beyond a mere allegory, Wis describes Her as powerful spirit acting directly upon history in a manner dangerously similar to the Holy Spirit (yes, it uses the feminine pronoun exclusively).
@@ -108,30 +108,17 @@ Chapter 6 gives us a foretaste of the principle that will be hammered home throu
 
 > 7 For the Lord of all will not stand in awe of anyone, or show deference to greatness; because he himself made both small and great, and he takes thought for all alike. [Wis: 6:7]
 
-There is an order to the universe and God, the creator of all things, is above his creation. God does not show deference for his creation. The creator does not bow before the creation.
-
-
-
-
-
-
-
-
-
-
-
-
-
-----------------------------------------------------------------
+There is an order to the universe and God, the creator of all things, is above his creation. God does not show deference for his creation. Get ready to see this a lot; creator does not bow before the creation.
 
 Next we jump to Chapter 13 where the author begins an exploration idolatry in 6 movements:
 
-1. The futility of worshiping a dead thing (stars) [Wis 13:1-9]
-2. The futility of worshiping a dead thing (wood) [Wis 13:10-19]
-3. The Wisdom of God and the abominations contrasted [Wis 14:1-14]
-4. The worship of depictions as the origin of pagan abominations [Wis 14:15-31]
-5. The benefits of worshipping the living God [Wis 15:1-6]
-6. The futility of worshiping a dead thing (clay) [Wis 15:7-17]
+
+## 6.1 The foolishness of worshiping a dead thing (stars) [Wis 13:1-9]
+## 6.2 The foolishness of worshiping a dead thing (wood) [Wis 13:10-19]
+## 6.3 The Wisdom of God and the abominations contrasted [Wis 14:1-14]
+## 6.4 The origins of pagan abominations [Wis 14:15-31]
+## 6.5 The benefits of worshipping the living God [Wis 15:1-6]
+## 6.6 The foolishness of worshiping a dead thing (clay) [Wis 15:7-17]
 
 # 6. Icons in Scripture
 # 7. The Wisdom of Solomon in the Early Church
