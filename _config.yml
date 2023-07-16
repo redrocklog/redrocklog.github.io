@@ -31,8 +31,11 @@ theme: minima
 plugins:
   - jekyll-feed
   - jemoji
+
 minima:
   skin: dark
+  
+markdown: kramdown
 # Emoji list: https://github.com/github/gemoji/blob/master/db/emoji.json
 
 # Exclude from processing.

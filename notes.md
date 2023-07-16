@@ -38,6 +38,8 @@ For the juxtaposition that sets the stage to make sense, one would be compelled 
 
 
 
+https://archive.org/stream/wccfops2.154/wccfops2.154_djvu.txt
+
 
 
 
@@ -169,3 +171,43 @@ Question 3
 
 
 
+
+
+
+-------------------------------------------- 
+
+https://www.newadvent.org/cathen/07664a.htm
+
+
+> even if you say that it is a god and he a piece of wood, it is not for that reason superior to you. You have no reason, therefore, to worship it, almost as though it were superior to you. You in fact have sensible faculties, whereas he does not. You hear, whereas he does not hear. You see, whereas he does not see. You walk, whereas he does not walk. You live, whereas of him, I cannot even say that he is dead, since he has never been alive. You, therefore, are superior to the image you have made. Well then, worship one who is superior to you, that is, the One who created you! It would be an insult to you if someone considered you as equal to that object you have made. You ask what the one you worship is like? If someone were to say to you out of ill will, "If only you were like that thing there," you would be beside yourself with rage. And yet you adore what you would abhor to be, and adoring it you become in some way similar to that object, not, of course, changing into wood and ceasing to be a person but rendering your interior person almost similar to the bodily effigy you have made.  --- Augustine
+
+
+http://orthodoxinfo.com/general/icon_faq.aspx
+
+"Since this is the case, following the royal path and the teaching divinely inspired by our holy Fathers and the Tradition of the catholic Church—for we know that it is inspired by the Holy Spirit who lives in it—we decide in all correctness and after a thorough examination that, just as the holy and vivifying Cross, similarly the holy and precious Icons painted with colors, made with little stones or with any other matter serving this purpose (epitedeios), should be placed in the holy churches of God, on vases and sacred vestments, on walls and boards, in houses and on roads, whether these are Icons of our Lord God and Savior, Jesus Christ, or of our spotless Sovereign Lady, the holy Mother of God, or of the holy angels and of holy and venerable men. For each time that we see their representation in an image, each time, while gazing upon them, we are made to remember the prototypes, we grow to love them more, and we are more induced to worship them by kissing them and by witnessing our veneration (proskenesin), not the true adoration (latreian) which, according to our faith, is proper only to the one divine nature, but in the same way as **we venerate the image of the precious and vivifying cross, the holy Gospel and other sacred objects which we honor with incense and candles according to the pious custom of our forefathers.** For the honor rendered to the image goes to its prototype, and the person who venerates an Icon venerates the person represented in it. Indeed, such is the teaching of our holy Fathers and the Tradition of the holy catholic Church which propagated the Gospel from one end of the earth to the other."
+
+
+
+
+We see in the account of Jeroboam that the people were deceived. They were told that by worshiping the Gold Calves that they were worshiping the divine "who brought [them] up out of the land of Egypt." Even if you think you are keeping the faith of your fathers, even if you are lied to, its still idolatry. 
+
+> 26 And Jeroboam said in his heart, “Now the kingdom will turn back to the house of David. 27 If this people go up to offer sacrifices in the temple of the Lord at Jerusalem, then the heart of this people will turn again to their lord, to Rehoboam king of Judah, and they will kill me and return to Rehoboam king of Judah.” 28 So the king took counsel and made two calves of gold. And he said to the people, “You have gone up to Jerusalem long enough. Behold your gods, O Israel, who brought you up out of the land of Egypt.” 29 And he set one in Bethel, and the other he put in Dan. 30 Then this thing became a sin, for the people went as far as Dan to be before one. [1 Kings 12:26-30]
+
+
+
+https://www.intratext.com/
+
+
+https://www.newadvent.org/fathers/04121.htm
+
+https://www.newadvent.org/fathers/0205.htm
+
+https://sites.google.com/site/aquinasstudybible/home/isaiah/john-chrysostom-homilies-on-isaiah
+
+https://sites.google.com/site/aquinasstudybible/home/isaiah
+
+https://sites.google.com/site/aquinasstudybible/
+
+https://biblia.com/bible/nrsv/isaiah/45
+
+https://www.newadvent.org/cathen/07664a.htm

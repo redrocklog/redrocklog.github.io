@@ -1,0 +1,58 @@
+>18 For the wrath of God is revealed from heaven against all ungodliness and unrighteousness of men, who by their unrighteousness suppress the truth. 19 For what can be known about God is plain to them, because God has shown it to them. 20 For his invisible attributes, namely, his eternal power and divine nature, have been clearly perceived, ever since the creation of the world, in the things that have been made. So they are without excuse. 21 For although they knew God, they did not honor him as God or give thanks to him, but they became futile in their thinking, and their foolish hearts were darkened. 22 Claiming to be wise, they became fools, 23 and exchanged the glory of the immortal God for images resembling mortal man and birds and animals and creeping things. 24 Therefore God gave them up in the lusts of their hearts to impurity, to the dishonoring of their bodies among themselves, 25 because they exchanged the truth about God for a lie and worshiped and served the creature rather than the Creator, who is blessed forever! Amen. [Romans 1:18-25]
+
+> 20 For the creation was subjected to futility, not willingly, but because of him who subjected it, in hope [Romans 8:20]
+
+> 19 You will say to me then, “Why does he still find fault? For who can resist his will?” 20 But who are you, O man, to answer back to God? Will what is molded say to its molder, “Why have you made me like this?” [Romans 9:19-20]
+
+> 22 So Paul, standing in the midst of the Areopagus, said: “Men of Athens, I perceive that in every way you are very religious. 23 For as I passed along and observed the objects of your worship, I found also an altar with this inscription: ‘To the unknown god.’ What therefore you worship as unknown, this I proclaim to you. 24 The God who made the world and everything in it, being Lord of heaven and earth, does not live in temples made by man, 25 nor is he served by human hands, as though he needed anything, since he himself gives to all mankind life and breath and everything. 26 And he made from one man every nation of mankind to live on all the face of the earth, having determined allotted periods and the boundaries of their dwelling place, 27 that they should seek God, and perhaps feel their way toward him and find him. Yet he is actually not far from each one of us, 28 for “‘In him we live and move and have our being’; as even some of your own poets have said, “‘For we are indeed his offspring.’ 29 Being then God's offspring, we ought not to think that the divine being is like gold or silver or stone, an image formed by the art and imagination of man. 30 The times of ignorance God overlooked, but now he commands all people everywhere to repent, 31 because he has fixed a day on which he will judge the world in righteousness by a man whom he has appointed; and of this he has given assurance to all by raising him from the dead.” [Acts 17:22-31]
+
+> 20 Now in a great house there are not only vessels of gold and silver but also of wood and clay, some for honorable use, some for dishonorable. 21 Therefore, if anyone cleanses himself from what is dishonorable, he will be a vessel for honorable use, set apart as holy, useful to the master of the house, ready for every good work. [2 Timothy 2:20-21]
+
+> 10 Hear the word that the Lord speaks to you, O house of Israel. 2 Thus says the Lord: “Learn not the way of the nations, nor be dismayed at the signs of the heavens because the nations are dismayed at them, 3 for the customs of the peoples are vanity. A tree from the forest is cut down and worked with an axe by the hands of a craftsman. 4 They decorate it with silver and gold; they fasten it with hammer and nails so that it cannot move. 5 Their idols are like scarecrows in a cucumber field, and they cannot speak; they have to be carried, for they cannot walk. Do not be afraid of them, for they cannot do evil, neither is it in them to do good.” 6 There is none like you, O Lord; you are great, and your name is great in might. 7 Who would not fear you, O King of the nations? For this is your due; for among all the wise ones of the nations and in all their kingdoms there is none like you. 8 They are both stupid and foolish; the instruction of idols is but wood! 9 Beaten silver is brought from Tarshish, and gold from Uphaz. They are the work of the craftsman and of the hands of the goldsmith; their clothing is violet and purple; they are all the work of skilled men. 10 But the Lord is the true God; he is the living God and the everlasting King. At his wrath the earth quakes, and the nations cannot endure his indignation. [Jeremiah 10:1-10]
+
+> 115 Not to us, O Lord, not to us, but to your name give glory, for the sake of your steadfast love and your faithfulness! 2 Why should the nations say, “Where is their God?” 3 Our God is in the heavens; he does all that he pleases. 4 Their idols are silver and gold, the work of human hands. 5 They have mouths, but do not speak; eyes, but do not see. 6 They have ears, but do not hear; noses, but do not smell. 7 They have hands, but do not feel; feet, but do not walk; and they do not make a sound in their throat. 8 Those who make them become like them; so do all who trust in them. [Psalm 115:1-8]
+
+> 3 When I look at your heavens, the work of your fingers, the moon and the stars, which you have set in place, 4 what is man that you are mindful of him, and the son of man that you care for him? 5 Yet you have made him a little lower than the heavenly beings and crowned him with glory and honor. 6 You have given him dominion over the works of your hands; you have put all things under his feet, 7 all sheep and oxen, and also the beasts of the field, 8 the birds of the heavens, and the fish of the sea, whatever passes along the paths of the seas. [Psalm 8:3-8]
+
+> 4 He removed the high places and broke the pillars and cut down the Asherah. And he broke in pieces the bronze serpent that Moses had made, for until those days the people of Israel had made offerings to it (it was called Nehushtan). [2 Kings 18:4]
+
+https://biblehub.com/2_kings/18-4.htm
+
+> 5 that when you hear the sound of the horn, pipe, lyre, trigon, harp, bagpipe, and every kind of music, you are to fall down and worship the golden image that King Nebuchadnezzar has set up. 6 And whoever does not fall down and worship shall immediately be cast into a burning fiery furnace.” 7 Therefore, as soon as all the peoples heard the sound of the horn, pipe, lyre, trigon, harp, bagpipe, and every kind of music, all the peoples, nations, and languages fell down and worshiped the golden image that King Nebuchadnezzar had set up. [Daniel 3:5-7]
+
+https://biblehub.com/daniel/3-6.htm
+
+> 10 You, O king, have made a decree, that every man who hears the sound of the horn, pipe, lyre, trigon, harp, bagpipe, and every kind of music, shall fall down and worship the golden image. [Daniel 3:10]
+
+https://biblehub.com/daniel/3-10.htm
+
+> 5 Then the mariners were afraid, and each cried out to his god. And they hurled the cargo that was in the ship into the sea to lighten it for them. But Jonah had gone down into the inner part of the ship and had lain down and was fast asleep. [Jonah 1:5]
+
+> 13 Nevertheless, the men rowed hard to get back to dry land, but they could not, for the sea grew more and more tempestuous against them. [Jonah 1:13]
+
+> 16 Then the men feared the Lord exceedingly, and they offered a sacrifice to the Lord and made vows. [Jonah 1:16]
+
+> 8 Those who pay regard to vain idols forsake their hope of steadfast love. [Jonah 2:8]
+
+> 9 “Woe to him who strives with him who formed him, a pot among earthen pots! Does the clay say to him who forms it, ‘What are you making?’ or ‘Your work has no handles’? 10 Woe to him who says to a father, ‘What are you begetting?’ or to a woman, ‘With what are you in labor?’” [Isaiah 45:9-10]
+
+> 2 Vanity of vanities, says the Preacher, vanity of vanities! All is vanity. [Ecclesiastes 1:2]
+
+https://biblehub.com/ecclesiastes/1-2.htm
+
+> 13 know for certain that the Lord your God will no longer drive out these nations before you, but they shall be a snare and a trap for you, a whip on your sides and thorns in your eyes, until you perish from off this good ground that the Lord your God has given you. [Joshua 23:13]
+
+> 15 “Therefore watch yourselves very carefully. Since you saw no form on the day that the Lord spoke to you at Horeb out of the midst of the fire, 16 beware lest you act corruptly by making a carved image for yourselves, in the form of any figure, the likeness of male or female, 17 the likeness of any animal that is on the earth, the likeness of any winged bird that flies in the air, 18 the likeness of anything that creeps on the ground, the likeness of any fish that is in the water under the earth. 19 And beware lest you raise your eyes to heaven, and when you see the sun and the moon and the stars, all the host of heaven, you be drawn away and bow down to them and serve them, things that the Lord your God has allotted to all the peoples under the whole heaven. [Deuteronomy 4:15-19]
+
+
+> 22 For I must die in this land; I must not go over the Jordan. But you shall go over and take possession of that good land. 23 Take care, lest you forget the covenant of the Lord your God, which he made with you, and make a carved image, the form of anything that the Lord your God has forbidden you. 24 For the Lord your God is a consuming fire, a jealous God. 25 “When you father children and children's children, and have grown old in the land, if you act corruptly by making a carved image in the form of anything, and by doing what is evil in the sight of the Lord your God, so as to provoke him to anger, [Deuteronomy 4:22-25]
+
+
+
+
+> 7 And the people came to Moses and said, “We have sinned, for we have spoken against the Lord and against you. Pray to the Lord, that he take away the serpents from us.” So Moses prayed for the people. 8 And the Lord said to Moses, “Make a fiery serpent and set it on a pole, and everyone who is bitten, when he sees it, shall live.” 9 So Moses made a bronze serpent and set it on a pole. And if a serpent bit anyone, he would look at the bronze serpent and live. [Numbers 21:7-9]
+
+
+> 13 You shall tear down their altars and break their pillars and cut down their Asherim 14 (for you shall worship no other god, for the Lord, whose name is Jealous, is a jealous God), 15 lest you make a covenant with the inhabitants of the land, and when they whore after their gods and sacrifice to their gods and you are invited, you eat of his sacrifice, 16 and you take of their daughters for your sons, and their daughters whore after their gods and make your sons whore after their gods. 17 “You shall not make for yourself any gods of cast metal. [Exodus 34:13-17]
+
+> 3 “You shall have no other gods before me. 4 “You shall not make for yourself a carved image, or any likeness of anything that is in heaven above, or that is in the earth beneath, or that is in the water under the earth. 5 You shall not bow down to them or serve them, for I the Lord your God am a jealous God, visiting the iniquity of the fathers on the children to the third and the fourth generation of those who hate me, 6 but showing steadfast love to thousands of those who love me and keep my commandments. 7 “You shall not take the name of the Lord your God in vain, for the Lord will not hold him guiltless who takes his name in vain. [Exodus 20:3-7]
